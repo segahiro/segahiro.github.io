@@ -1,0 +1,1 @@
+# segahiro.github.io
